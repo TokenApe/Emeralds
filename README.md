@@ -1,3 +1,2 @@
 # Emeralds
 Best Team Ever
-#
